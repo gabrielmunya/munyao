@@ -1,4 +1,4 @@
 # munyao
 
-What's going on Humns!
+What's going on Humans!
 Someone be my friend here.
